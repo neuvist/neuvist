@@ -1,12 +1,38 @@
+<p align="center">
+<img src="https://github.com/user-attachments/assets/6df1822a-8e83-4864-b3ed-69d1bac10948"/>
 <div align='center'> 
-  ゛𝐿𝑒𝑡 𝑡ℎ𝑒 𝑚𝑖𝑔ℎ𝑡𝑦 𝑏𝑒 ℎ𝑢𝑚𝑏𝑙𝑒𝑑. 〃
+  ゛𝑨𝒉, 𝒎𝒚 𝒂𝒑𝒐𝒍𝒐𝒈𝒊𝒆𝒔. 𝑻𝒉𝒊𝒔 𝒉𝒆𝒂𝒗𝒚 <code style="color : lightskyblue">𝒓𝒂𝒊𝒏</code> 𝒎𝒖𝒔𝒕 𝒃𝒆 𝒒𝒖𝒊𝒕𝒆 𝒂𝒏 𝒊𝒏𝒄𝒐𝒏𝒗𝒆𝒏𝒊𝒆𝒏𝒄𝒆 𝒇𝒐𝒓 <code style="color : lightskyblue">𝒚𝒐𝒖</code>. 〃
+  <br>
+  <br>
 <img src="https://github.com/user-attachments/assets/9ee7130c-d427-4db8-883f-0dbe5b9af50c"/>
 <p align="center">
-◞˚̣̣̣ ྀི 　𝐱𝐢𝐧𝐠'𝐞𝐫　˚⑅　𝐲𝐢𝐧𝐠𝐱𝐢𝐧𝐠　ı་། ི⏝⠀｡
+  <p align="center">
+    <img src="https://github.com/user-attachments/assets/6df1822a-8e83-4864-b3ed-69d1bac10948"/>
+    <br>
+    <br>
+<p align="center">
+୨ ͡ ₊◝　<code style="color : lightskyblue">xing'er</code>⠀⠀ᵒᵘ ⠀<code style="color : lightskyblue">yingxing</code>　◡ ིྀ 
+</p>
+<p align="center">
+ 　　　ℓ　he｡　╱　him ᐩ་། ₎
+</p>
+<p align="center">
+  ౨◟ ͜ ◞ ༙ co｡　💠  　∘　　yingxinng　⠀ৎ
+</p>
+<br>
+<br>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/6df1822a-8e83-4864-b3ed-69d1bac10948"/>
 </p>
   <p align="center">
- ࣪ ˖  ་✃　𝐡𝐞　╱　𝐡𝐢𝐦　◞ 𓎠ৎ
-<p align="center">
-୨ ͡ ₊◝　6𝐭𝐞𝐞𝐧　ᐩ་། ₎
+  <img src="https://github.com/user-attachments/assets/afc62616-2f25-4caa-a650-a41e53b8ee56"/>
+  </p>
+<div align='center'> 
+  ゛𝙔𝙤𝙪 𝙬𝙤𝙪𝙡𝙙𝙣'𝙩 𝙚𝙭𝙖𝙘𝙩𝙡𝙮 𝙙𝙚𝙨𝙘𝙧𝙞𝙗𝙚 𝙩𝙝𝙚 𝙄𝙪𝙙𝙚𝙭 𝙤𝙛 𝙁𝙤𝙣𝙩𝙖𝙞𝙣𝙚 𝙖𝙨 <code style="color : lightskyblue">"𝙖𝙥𝙥𝙧𝙤𝙖𝙘𝙝𝙖𝙗𝙡𝙚."</code> 𝙄𝙩'𝙨 𝙝𝙖𝙧𝙙 𝙩𝙤 𝙨𝙖𝙮 𝙬𝙝𝙚𝙩𝙝𝙚𝙧 𝙞𝙩'𝙨 𝙟𝙪𝙨𝙩 𝙞𝙣 𝙝𝙞𝙨 𝙣𝙖𝙩𝙪𝙧𝙚, 𝙤𝙧 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙝𝙚 𝙝𝙖𝙨 𝙨𝙚𝙘𝙧𝙚𝙩𝙨 𝙩𝙤 𝙝𝙞𝙙𝙚. 〃
+  <br>
+  <br>
+  <p align="center">
+<img src="https://github.com/user-attachments/assets/6df1822a-8e83-4864-b3ed-69d1bac10948"/>
 
+  
 <a>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bsdqj9hwvkppv42hzun2nxazy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=762323&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</a>
