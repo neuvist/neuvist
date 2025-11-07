@@ -1,6 +1,6 @@
 <div align='center'> 
   ゛𝐿𝑒𝑡 𝑡ℎ𝑒 𝑚𝑖𝑔ℎ𝑡𝑦 𝑏𝑒 ℎ𝑢𝑚𝑏𝑙𝑒𝑑. 〃
-<img src="https://github.com/user-attachments/assets/cfe1f793-5187-4a77-a3e6-3a3ce2661ad8"/>
+<img src="https://github.com/user-attachments/assets/9ee7130c-d427-4db8-883f-0dbe5b9af50c"/>
 <p align="center">
 ◞˚̣̣̣ ྀི 　𝐱𝐢𝐧𝐠'𝐞𝐫　˚⑅　𝐲𝐢𝐧𝐠𝐱𝐢𝐧𝐠　ı་། ི⏝⠀｡
 </p>
