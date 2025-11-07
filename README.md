@@ -19,20 +19,9 @@
 <p align="center">
   ౨◟ ͜ ◞ ༙ co｡　💠  　∘　　yingxinng　⠀ৎ
 </p>
-<br>
-<br>
+  
+  <a>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bsdqj9hwvkppv42hzun2nxazy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=762323&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</a>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/6df1822a-8e83-4864-b3ed-69d1bac10948"/>
 </p>
-  <p align="center">
-  <img src="https://github.com/user-attachments/assets/afc62616-2f25-4caa-a650-a41e53b8ee56"/>
-  </p>
-<div align='center'> 
-  ゛𝙔𝙤𝙪 𝙬𝙤𝙪𝙡𝙙𝙣'𝙩 𝙚𝙭𝙖𝙘𝙩𝙡𝙮 𝙙𝙚𝙨𝙘𝙧𝙞𝙗𝙚 𝙩𝙝𝙚 𝙄𝙪𝙙𝙚𝙭 𝙤𝙛 𝙁𝙤𝙣𝙩𝙖𝙞𝙣𝙚 𝙖𝙨 <code style="color : lightskyblue">"𝙖𝙥𝙥𝙧𝙤𝙖𝙘𝙝𝙖𝙗𝙡𝙚."</code> 𝙄𝙩'𝙨 𝙝𝙖𝙧𝙙 𝙩𝙤 𝙨𝙖𝙮 𝙬𝙝𝙚𝙩𝙝𝙚𝙧 𝙞𝙩'𝙨 𝙟𝙪𝙨𝙩 𝙞𝙣 𝙝𝙞𝙨 𝙣𝙖𝙩𝙪𝙧𝙚, 𝙤𝙧 𝙗𝙚𝙘𝙖𝙪𝙨𝙚 𝙝𝙚 𝙝𝙖𝙨 𝙨𝙚𝙘𝙧𝙚𝙩𝙨 𝙩𝙤 𝙝𝙞𝙙𝙚. 〃
-  <br>
-  <br>
-  <p align="center">
-<img src="https://github.com/user-attachments/assets/6df1822a-8e83-4864-b3ed-69d1bac10948"/>
 
-  
-<a>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bsdqj9hwvkppv42hzun2nxazy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=762323&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</a>
