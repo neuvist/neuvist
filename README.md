@@ -7,7 +7,7 @@
 <p align="center">
   <a href="https://yingxing.atabook.org/">
     <img width="200" height="60" alt="Image" src="https://github.com/user-attachments/assets/15e93b44-5b62-45d5-8995-10caf199eaa2" />
-  </a><a href="https://rentry.co/ghreadme">
+  </a><a href="https://branzycrafts.straw.page">
     <img width="200" height="60" alt="Image" src="https://github.com/user-attachments/assets/b98fd12b-bdfa-4ecb-b877-9539e143409f" />
   </a><a href="https://en.pronouns.page/@branziecraft">
    <img width="200" height="60" alt="Image" src="https://github.com/user-attachments/assets/08de143a-9e5e-41a3-a448-e99e04b4fd8e" />      
